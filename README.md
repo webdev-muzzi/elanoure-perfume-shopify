@@ -33,5 +33,5 @@ This was a private client project. A live preview or demonstration can be provid
 
 ## Contact
 
-Interested in building a similar Shopify store for your brand?  
-Let’s connect through Fiverr or Upwork.
+Need a Shopify store for your own brand?  
+Reach out via [Fiverr](https://www.fiverr.com/muzamil_h1) or [Upwork](https://www.upwork.com/freelancers/~013e0d1c9806ff1742) to get started.
